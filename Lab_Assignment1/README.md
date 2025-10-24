@@ -12,7 +12,7 @@ Johir Babor - UCID 30256791
 
 Hamzat Abdullah - UCID 30298052
 
-Taha Fatizadeh - UCID 30265465
+Taha Fathizadeh - UCID 30265465
 
 
 
